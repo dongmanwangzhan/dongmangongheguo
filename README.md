@@ -1,7 +1,8 @@
 <h2>动漫共和国官方网站入口 - 动漫追番在线看|最新网址|打不开|下载</h2>
 <p>动漫共和国是一个专为动漫爱好者打造的综合性在线平台，致力于提供丰富多样的动漫资源和优质的观看体验。该平台汇聚了国内外热门及经典动漫作品，包括日漫、国漫、美漫等多种类型，满足不同用户的多样化需求。动漫共和国采用先进的视频压缩技术，支持高清、超清甚至蓝光画质播放，确保用户能够享受到流畅且清晰的视觉盛宴。</p>
 <p><strong>一键访问：</strong><a href="https://www.rymdh.com/sites/1587.html" target="_blank"><strong>动漫共和国最新网址</strong></a></p>
-<p><strong>一键访问：</strong><a href="https://pan.quark.cn/s/0db22432c259" target="_blank"><strong>⏬经典电影/无损音乐</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://www.rymdh.com/favorites/dongmanerciyuan"><strong>在线动漫/漫画看</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/"><strong>电子书/电影/音乐/漫画/游戏下载</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p>平台功能特点如下：</p>
 <ol>
